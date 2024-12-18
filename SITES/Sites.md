@@ -1,4 +1,4 @@
-<p>Sites Internacionais:<p/>
+Sites Internacionais:
 https://www.vetoreditora.com.br/produto/plano-educacional-individualizado-para-alunos-com-deficiencias-71649
 https://theforgotteninitiative.org/individualized-education-plan/
 https://educationorganic.com/what-is-iep-in-special-education/#google_vignette
